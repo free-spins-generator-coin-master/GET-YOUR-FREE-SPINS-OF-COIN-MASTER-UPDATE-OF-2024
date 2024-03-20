@@ -2,9 +2,9 @@
 
 **28 second** -Today in March 2024, Coin Master offers Free Spins, Coins, and Links! Simply tap on the "Collect Now" button to claim your rewards. A pop-up menu will then appear, giving you the option to open these rewards directly in Coin Master for instant use.
 
-[**🔴► Click Here For Coin Master Free Spins 🌍**](https://moroccino.github.io/CoinMaster/)
+[**🔴► Click Here For Coin Master Free Spins 🌍**](https://jimaddadel.github.io/Coin)
 
-[**🔴► Click Here For Coin Master Free Spins 🌍**](https://moroccino.github.io/CoinMaster/)
+[**🔴► Click Here For Coin Master Free Spins 🌍**](https://jimaddadel.github.io/Coin)
  
 Experience the thrill of Coin Master's March 2024 Free Spins and Coins Links today! By tapping the "Collect Now" button, you can access an array of exciting rewards to enhance your gameplay. Moreover, a convenient pop-up menu allows you to seamlessly open these rewards directly in Coin Master, saving you time and effort.
 
